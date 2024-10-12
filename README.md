@@ -1,2 +1,0 @@
-- 👋 Hi, I’m @c23049238 (carcar1010)
-- 📫 How to reach me // carcar1010inquires@gmail.com
